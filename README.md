@@ -1,1 +1,1 @@
-Welcome to Monkey Verse! This Update is the Reporting Update, where you can finally report people for doing something bad such as: Breaking the Rules or Toxicity or Cheating. Thank you all for your patience and now lets try to make Monkey Verse a Better place! - JonVR AKA Jon Landon
+MONKEY VERSE IS ON LOCKDOWN DUE TO PEOPLE HACKING AND GETTING ACCESS TO THE BAN HAMMER PLEASE DO NOT PLAY! IT IS VERY DANGEROUS YOU COULD GET BANNED.
