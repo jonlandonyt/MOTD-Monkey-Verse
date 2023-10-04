@@ -1,1 +1,1 @@
-Welcome To Monkey Verse 5.0 Remake Update! As you can see there is a new map, With a new shop, with a new mirror, and a new everything! So play around with your friends!
+ITS SPOOKY MONTH! HAVE FUN IN HORROR MODE! RUN INTO SHOP GET NEW LIMITED TIME COSMETICS! PUMPKINS ARE EVERYWHERE! ITS ALL SPOOKY! HAVE FUN IN THE NEW HALLOWEEN UPDATE!
