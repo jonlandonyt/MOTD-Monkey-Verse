@@ -1,1 +1,1 @@
-Monkey Verse is not coming back, due to people hacking it. I am sorry to people who loved this game, But I have to move on. Thanks for all the support. (:
+Sorry to everyone who got banned. Monkey Verse was hacked and on shutdown for a while but is now back! Now Its Christmas time in Monkey Verse, Its snowing everywhere! Its beginning to look a lot like christmas!
