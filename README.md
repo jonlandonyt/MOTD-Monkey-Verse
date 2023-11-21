@@ -1,1 +1,1 @@
-Sorry to everyone who got banned. Monkey Verse was hacked and on shutdown for a while but is now back! Now Its Christmas time in Monkey Verse, Its snowing everywhere! Its beginning to look a lot like christmas!
+Hello everyone, Monkey Verse was on Lockdown for a while but is now back! In this new update there is a new Banning System. and new stuff for moderators! Enjoy the new update everyone! (:
