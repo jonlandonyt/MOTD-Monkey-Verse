@@ -1,1 +1,1 @@
-Hello everyone, Monkey Verse was on Lockdown for a while but is now back! In this new update there is a new Banning System. and new stuff for moderators! Enjoy the new update everyone! (:
+Hello everyone, Monkey Verse will be now discontinued due to me losing the keystore for the game. Thank you all for the amazing support. you guys are amazing (: #RIPMonkeyVerse
